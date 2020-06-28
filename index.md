@@ -16,3 +16,5 @@ he is probably the most dangerous of the fugitive replicants.
 > Attack ships on fire off the shoulder of Orion.
 > I watched C-beams glitter in the dark near the Tannhauser Gate.
 > All those moments will be lost in time, like tears in rain. Time to die.
+
+<img src="https://i.redd.it/r5r2cq2m6iw31.jpg"/>
